@@ -7,7 +7,7 @@
 
 💻 An avid learner who is always looking forward to learn new technologies and exploring different domains.  
 
-💬 How to reach me **abhi06031999@gmail.com**
+💬 How to reach me  abhi06031999@gmail.com
 
 <br/>
 
